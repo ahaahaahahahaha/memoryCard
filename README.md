@@ -1,0 +1,2 @@
+# memoryCard
+ya fanat kurseda 
